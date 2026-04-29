@@ -1,4 +1,4 @@
-
+Get the ultimate deadlock esp scripts with deadlock esp new Scripts - enemy hero attack range and auto-map awareness. Featuring enemy hero attack range and auto-map awareness,
 
 
 
